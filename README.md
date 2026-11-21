@@ -1,5 +1,5 @@
 Hey, I'm Derek
 
-I've been doing stuff at Datalogz since 2024 and did stuff before that too
+I do stuff at Datalogz currently and did stuff at other places previously.
 
-I'm also on [LinkedIn](https://www.linkedin.com/in/derekhecksher) and [X](https://x.com/hckshr)
+You can find me at [LinkedIn](https://www.linkedin.com/in/derekhecksher) and [X](https://x.com/hckshr)
